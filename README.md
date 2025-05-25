@@ -1,1 +1,0 @@
-# contrariae-sententiae.github.io
